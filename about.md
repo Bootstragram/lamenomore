@@ -10,4 +10,4 @@ start singing along and you are feeling. so. lame. Rihanna who?
 Lame No More is for you.
 
 Today's TOP 10 might be crap. Will probably make you vomit sometimes.
-But at least, you will never be that guy again.
+But at least, you will never be **that guy** again.
